@@ -5,5 +5,3 @@
 - 📫 How to reach me: email:srparves95@gmail.com 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I enjoy solving complex coding puzzles and exploring new technologies!
-
-- 
